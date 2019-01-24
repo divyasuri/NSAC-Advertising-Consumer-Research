@@ -1,0 +1,2 @@
+# NSACSubmissions
+As part of UC Berkeley's competitive marketing team, I placed 6th in the nation at the National Student Advertising Competition 2016 and 2nd in my district in the 2017 edition. In both cases, I conducted intensive primary (surveys, product trials, shopalongs, interviews, focus groups) and secondary (social media analysis, industry reports) research into competitors, industries and consumers to create a brief that would drive the creative direction for our campaigns. 
